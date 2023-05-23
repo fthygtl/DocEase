@@ -1,1 +1,2 @@
-To go to web Page https://fthygtl.github.io/new/
+To go to web Page https://fthygtl.github.io/DocEase
+
